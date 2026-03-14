@@ -1,162 +1,208 @@
 Neopets 26th Birthday Goodie Bag
 Y27 Usukicon Goodie Bag
 Vexing Varwolf Goodie Bag
+Blonde Sculpted Soft Waves Wig
+In a Chocolate Wrapper Trinket
 Maraquan Wocky Plushie
-Anime Valentines Bow
+Blue Mythical Gelert Tail
 Faerie Drugal Wig
-Swirly Negg #498
+Pink Naturally Curly Top Knot Wig
 Grey Gothic School Make Up
-Iced Cherise Chai
+Tonu Trifle
+Anime Valentines Bow
+Blue Mythical Gelert Body
 Grey Gothic Moody Hair Wig
-Anime Valentine Shoes
+Sculpted Soft Waves Wig
 Maraquan Zafara Plushie
-Skeletal Meerca Lens
 Yellow Negg
 Purple Negg
 Partitioned Negg
+Swirly Negg #498
 Anime Valentine Dress
-Bomberry Elixir
-Hagan Collectable Charm
-Darkest Knight Skeith Sword
-The Quiggle Diet
-Victorian Xweetok Dress
-Grarrl Mime Dress
-Super Icy Negg
-Jar of Forest Earth
+Anime Valentine Shoes
+Chia on a Smore
 Lemon Swirly Negg
-Green Negg
-Tasseled Acara Hat
-Cute Kacheek Make Up
-Bubbling Fungus
-Darigan Kiko Plushie
-Lime Swirly Negg
-Tie Dye Lace Dress
-Tonu Hippie Wig
-Eight Point Paper Star
-Scamander Shoulder Companion
-Festival Korbat Hat
-Jute Vandagyre Top
-Halloween Y14 Goodie Bag
-Cute Kacheek Jumper
-Jinjah Ale
-Tribal Lupe Spear
-Kau Tape
-Red Riding Lenny Shoes
+Super Icy Negg
+Raspberry Macarons
+Blumaroo Ice Cream Sundae
 Cooling Balm of the Warrior
-Brown Newsboy Hat
-Zafara Veggie Stew
-Shenkuu Kougra Warrior Sword
-Chocolate Nimmo Dessert
-In a Chocolate Wrapper Trinket
-Wocky Detective Hat
-Forest Ranger Meerca Shoes
-Grey Scissors
-Organisation is Easy
-Egg and Carrots
-Moon Cut Vase
-Turkey Curry
-Usul Flamenco Dancer Wig
-Starry Toast
-Boomerang Throwing Techniques
-Elephante Earbuds
-Accordion Sponge
-Pompoms Gelert Shoes
-Archie Mr Squiddy Kiko Wings
-Greaser Elephante Suave Shoes
-Novelty Blue Blumaroo Slippers
-Cyberpunk Lupe Hood
-Suspicious Borovan Creame Pie
-Moehog Milkshake
-Marzipan Mortogs
-Perry Usul Skirt
-Witch Korbat Dress
-Martial Draik Trousers
-BLT Sandwich with Cheese
-Barista Tuskaninny Shirt
-Goddess Nimmo Staff
-Lettuce Wrap
-Spicy BBQ Chomby Crisps
-Chequered Hoodie Bruce Shoes
-Jute Vandagyre Necklace
-Savoury Pear Pastry Roll
-Forest Ranger Meerca Binoculars
-Pink Triple Decker Sandwich
-Balloon Notepad
-Number Pasta
-Purple Feather Boa
-Obnoxious Nimmo
-Strawberry Draik Biscuit
-Exotic Sliced Truffles
-Mutant Asparagus
-Perry Usul top
-Raspberry Cranberry Juice
-Tonu Hippie Necklace
-Extra Crispy Bacon Gum
-Combatant Elephante Wig
-Injured Pteri Foot Wrap
-Strawberry Lupe Treat
-Cheery Holiday Bruce Goodie Bag
-Cwin Eyrie Short
-Cute Baby Bib
-Creepy Unicyclist Jetsam Mask
-Dried Lupe Snack
-Pumpkin Ghost Toast
-Boiled Peanut Dash Peanuts
-Rainbow Braid
-Chia Cereal
-Peophin Pancakes
-Purple Acara Plushie
-Sweet and Sour Soup
-Classy Chic Gnorbu Pants
-Kyrii Pirate Avenger Swords
-Mutant Cheese Pizza Slice
-Waffle Cone Heart Headband
-Vanilla Draik Biscuit
-Blue Lupe Chia Plushie
-Golden Tangerines
-Red Glitterpen
-Shining Shoyru Wig
-Tonu Thug Trousers
-Turkey Leg
-Heart Lollipop
-Jetsam Masquerader Eye Mask
+Bomberry Elixir
+Bubbling Fungus
+Quiggle Fly Pie
+Flaming Hot Meat Taco
+Jar of Forest Earth
+Chocolate Chomby Ice Cream Sandwich
+Lime Swirly Negg
+Cheddar and Screlon Plate
+Hand Wrap
+Green Negg
+Orange Baby Aisha Lollypop
+Cheesetacular Gift Basket
+Lump Of Wood
+Toffee Chocolate Aisha Sundae
+Tofukabob
+Flotsam Ice Cream Sundae
+Dung Negg
+Peanut Butter and Jelly Gormball Sandwich
+Blue Acara Cake
+Lupe Burger
+Scamander Shoulder Companion
 Zafara Vegetable Croissant
-Bejeweled
-Chocolate Ixi Cookies
-Mini Koi Cereal
-Dandelion Kacheek Shoes
-Birdie Featherhart Vandagyre Hair
-Peophin Defender Wig
-Plain Crackers
-Red Buzz Energy Drink
-Mutant Doughnut
-Assorted Gummy Dice
-Blueberry Vanilla Flotsam Cake
-Evening Kougra Wig
-Jhudora Liquorice
-Egg Stew
-Poogle Glit Dress
-Roast Chestnut Pie
-Mouldy Mini Kau Cheese Wheel
+Honeycomb Face Markings
 Egg Pate
-Sidney Nimmo Pants
-Cheese and Chive Crepe
-Fried Salmon
-Indigo Wig
-Lemonade
-Chia Stooge Shoes
-Chokato Doughnut
-Tonu Hippie Bottom
-Fortune Teller Kau Magic Aura
-Chocolate Gnome Crunch
-Uni Psychedelic Bottom
-Happy Happy Peanuts
-Evening Kougra Dress
+Origami Donut
+Chocolate Elephante Doughnut
+Aisha Avocado Toast
+Chokato Dumplings Eraser
+Iced Cherise Chai
+Combatant Elephante Spear
+Halloween Y14 Goodie Bag
+Sugar Cookie Mix In A Jar
+Tuskaninny Ice Cream
+Origami Breakfast
+Left-Over Sliced Turkey Sandwich
+Small Fizzy Drink
+Gold Glitterpen
+Elephante Ice Cream
+Chia Chia Pudding
+Steamed Round Dumplings
+Captain Scarblade Crunch Cereal
+Raspberry Baby JubJub Lollypop
+Florg Burger
+Sour Apple Ixi Fizzy Drink
+Turkey Croquettes
+Grarrl Scissors
+Blue Short Locs Wig
+Gelert Crumpet
+Limeade
+Kyrii Jumbleberry Milkshake
+Red Scorchipepper
+Fire Tonic
+Number Fruit Leather
+Plain Sloth Day Burger
+Gnorbu Wool Candy Floss
 Spinach Eyrie Souffle
-Bubbly Rhuby Fruit Juice
-Ixi Blue Bandana
-Noir Mynci Shoes
-Symol White Cheddar Cheese Ball
-Smiley Pancakes
-Candy Heart Necklace
-Kiwi Muffin
+Cheesy Kyrii Sandwich
+Chomby Hot Dog
+Jammy Kyrii Sandwich
+Koi Seaweed Sundae
+Meme Sunglasses
+Starry Taco
+Steak Platter
+Sugar Coated Jacket Potato
+Cheesy Jetsam Sandwich
+Dorkleshroom
+Quiggle Veggie Soup
+Hot Fruit Soup
+Number Jelly Parfait
+Strawberry Achyfi
+Brown Techo Cookie
+Mushroom Sandwich
+Phear Flavoured Milk
+Lemon and Orange Blend
+Royal Girl Zafara Pancakes
+Cute Kacheek Make Up
+Kau Banjo
+Kiwi Sorbet
+Crunchy Buzz Honey Delight
+Grilled Ummagine
+Mutant Cheese Pizza Slice
+Vanilla Blumaroo Cone
+Sparkling Blue New Year Juice
+Suspicious Borovan Creame Pie
+Chocolate Gnome Crunch
+Creamy Jello Jigglers
+Florg Os Cereal
+Mutant Hot Dog
+Grey Scissors
+Lutaya
+Sour Cream Chomby Crisps
+Chocolate Nimmo Dessert
+Cupcake with Rainbow Frosting
+Tea Jelly
+Wheaty Sloth Day Burger
+Moehog Salad
+Apple Walnut Tea Sandwiches
+Sparkling Space Cocktail
+Chicken Taquitos
+Extra Sour Seedless Skeem Jam
+Grey Juice
+Ogrin Peanut Butter and Jelly Sandwich
+Peanut Butter & Jelly Waffle Sandwich
+Tigerfruit Candy Cane
+Aisha Day Soup
+Chokato Sundae
+Cooling Ice Pack
+Chocolate Covered Tomato
+Gruisberry Muffin
+Roast Chestnut Pie
+Roasted Chestnuts
+Spicy BBQ Chomby Crisps
+Cheese and Tonu Crackers
+Veggie Delight Jetsam Fin Crackers
+BLT Sandwich with Cheese
+Festive Petpet Appreciation Cake
+Jinjah Ale
+Sour Apple Gummy Gloves
+Torpedo Lupe Hood
+Folding Gold Crown
+Snowflake Bread
+Cute Kacheek Jumper
+Zafara Breakfast
+Chia Clay Planter
+Chocolate Ixi Cookies
+Crumpet With Jam
+Glass of Water
+Koi Bread Creature
+Rainbow Braid
+Strawberry Blumaroo Cone
+Twirly Fruit Cream Cheese Dip
+CPMPB Salad
+Grey Gothic School Pants
+Jhudora Eyeball Pasta
+Pineapple and Broccoli Pie
+Chocolate Chip Lenny Cookie
+Vanilla Faellie Cake
+Fried Salmon
+Jhudora Liquorice
+Motivational Poster
+Orange Jetsam Cupcake
+Pomegranate
+Quiggle Grilled Cheese Sandwich
+Raspberry Cranberry Juice
+Zafara Zeppole
+Doglefox Popcorn
+Strawberry Petpet Candies
+Toast on Toast
+Ummagine Pie
+Chocolate Custard
+Chocolate Ice Cream
+Cinnamon Apple Chips
+Cute Baby Bib
+Egg Roll
+Fizzy Grape Lupe Drink
+Sketch Sundae
+Turkey Curry
+Bubbly Twirly Fruit Juice
+Meerca Meriberry Pie
+Peanut Dash Cookie
+White Chocolate Draik
+Xweetok Vegetable Soup
+Festive Stocking
+Ixi Bagel
+Lemonade
+Ruki Juicebox
+Shoyru Tape Measurer
+Strawberry Oatmeal
+Sweet and Sour Soup
+Bug-a-licious Parfait
+Orange Smothered Swiss Roll
+Bejeweled
+Cybunny Sweet Girl Dress
+Lemon Lime Neocola
+Savoury Pear Pastry Roll
+Scaled Negg
+Forbidden Forever Fruit
+Tigerbuggle JubJub Mini Burger
+Flaming Hot Chips
+Wocky Spaghetti Ball
